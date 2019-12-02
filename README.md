@@ -1,2 +1,2 @@
 # forkme_plz
-super open source project
+super open source project here are some cool names:
